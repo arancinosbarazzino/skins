@@ -6,9 +6,9 @@
 # MOST OF MY SKINS (click the name to download)
 
 
-# [-  『Arancino』  -](https://mega.nz/file/WWAgHRCJ#-KVmQ8H878yriiJ_EmU5AI1j1cpXIKuF70W0GRIwfSM)
+# [《 ArancinoV2 》](https://mega.nz/file/WWAgHRCJ#-KVmQ8H878yriiJ_EmU5AI1j1cpXIKuF70W0GRIwfSM)
 ![](https://i.imgur.com/huT9cl7.png)
-# [《 ArancinoV2 》](https://mega.nz/file/zGJAkICS#3OTomuhL3BNgFPjdStbqXCpwtr_PE8UqnHmrrbTHGyo)
+# [-  『Arancino』  -](https://mega.nz/file/zGJAkICS#3OTomuhL3BNgFPjdStbqXCpwtr_PE8UqnHmrrbTHGyo)
 ![](https://i.imgur.com/qXwdVSu.png)
 # [-+ Seoul v9 Personal Skin Old trail](https://shigeskinss.s-ul.eu/97eu8DIN)
 ![](https://i.imgur.com/hKeFcXv.png)
