@@ -26,7 +26,7 @@
 ![](https://i.imgur.com/kaOHlDt.png)
 # [- ᚖBlooᚖ -](https://www.mediafire.com/folder/k131nvpl5lf2i/-_%E1%9A%96Bloo%E1%9A%96_-)
 ![](https://skins.osuck.net/uploads/posts/2019-09/1569425902_screenshot6504.jpg)
-# [Condizionatore](https://mega.nz/file/EH5zTYqR#wQewa8YBSKMX5iVx_86f6K5OtGy4LRoTDrwfpkAO6pE)
+# [Conzidionatore](https://mega.nz/file/EH5zTYqR#wQewa8YBSKMX5iVx_86f6K5OtGy4LRoTDrwfpkAO6pE)
 ![](https://i.imgur.com/qhZg6ko.png)
 # [Informous 2018-11-01](https://www.mediafire.com/file/j5raovgx6jf8n6w/-_pinker_fusion_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-11/1541245083_screenshot961.jpg)
