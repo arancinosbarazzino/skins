@@ -48,4 +48,5 @@
 ![](https://shigeskinss.s-ul.eu/fbzHxPNk)
 # [Cookiezi 17](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2017%202016-02-27.osk)
 ![](https://shigeskinss.s-ul.eu/QCnNRWem)
-
+# [HowlWatcher V2](http://www.mediafire.com/file/jzq114qd1g3ci6y/howlwatcher-v2.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-10/1539606062_screenshot565.jpg)
