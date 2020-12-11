@@ -50,3 +50,5 @@
 ![](https://shigeskinss.s-ul.eu/QCnNRWem)
 # [HowlWatcher V2](http://www.mediafire.com/file/jzq114qd1g3ci6y/howlwatcher-v2.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-10/1539606062_screenshot565.jpg)
+# [Ameliorate GfMRT](https://www.dropbox.com/s/p7bjet7mx93jzig/Ameliorate%28GfMRT%29.osk?dl=1)
+![](https://i.imgur.com/YHKuyN9.png)
