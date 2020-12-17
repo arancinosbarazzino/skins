@@ -55,6 +55,6 @@
 # [Vaxei nomod ver2](https://joofixd.s-ul.eu/RNQ0X5dB)
 ![](https://camo.githubusercontent.com/f6ccd2d69ca62d1736dd15dd3159227c8504e2fbbd6dbd40f23c34ee26b961fe/68747470733a2f2f6f73752e7070792e73682f73732f31343132333538342f66396536)
 # [vaxei dt](http://www.mediafire.com/file/si3ggg8txs4w0bd/Vaxei+HD.osk/file)
-![](https://imgur.com/a/F7xJomh)
+![](https://i.imgur.com/WfJcQwo.png)
 # [Rohulk 4.0](http://www.mediafire.com/file/jchup4bt5725awp/Rohulk_4.0.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-05/1559304264_screenshot4866.jpg)
