@@ -61,6 +61,6 @@
 # [-A21 red azurlane edit](https://drive.google.com/file/d/1dyGTu5rU7xprmYkIETI1AYmWqDuWHNkD/view)
 ![](https://i.imgur.com/chXGO8X.png)
 # [Ryan (mystia) thing](https://mega.nz/file/UGgmRCJa#aJeh65pjSPl_lT-rKkT9R3tPYYtkBVpJNWfimEEkgC4)
-![](https://i.imgur.com/SRJIXtR.png)
+![](https://i.imgur.com/9aMrgl9.png)
 # [Rafis but Clack](https://mega.nz/file/XTpARBjB#WwJ0IJMjalheZaBB75J8qLx9FZkbU2SM6C11-g9JTLo)
 ![](https://i.imgur.com/09IPmeP.png)
