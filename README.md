@@ -5,8 +5,8 @@
 
 # MOST OF MY SKINS (click the name to download)
 
-# [《 ArancinoV2.1 》](https://mega.nz/file/bCwyGQLK#ZuPztgUhQQqJZWNSxz2q-5PJTFl_jGss9-qbbmwSdTc)
-![](https://i.imgur.com/huT9cl7.png)
+# [《 ArancinoV2.1 》](https://mega.nz/file/fX4EzaQT#Gq2aPcAPoJKZTtZqGtYdZAVEXeGHCjUuhWZBDbrB3TQ)
+![](https://i.imgur.com/kyJta8g.png)
 # [《 ArancinoV2 》](https://mega.nz/file/WWAgHRCJ#-KVmQ8H878yriiJ_EmU5AI1j1cpXIKuF70W0GRIwfSM)
 ![](https://i.imgur.com/huT9cl7.png)
 # [-  『Arancino』  -](https://mega.nz/file/zGJAkICS#3OTomuhL3BNgFPjdStbqXCpwtr_PE8UqnHmrrbTHGyo)
